@@ -1,0 +1,7 @@
+- Hi, I’m @letsalllovelain-cyber
+- I’m interested in ... Lain.
+- I’m currently learning HTML/CSS
+- I’m looking to learn the basics of coding 
+- How to reach me ... instagram: @jo.ichiro, discord: cheese#9716
+- I am looking forward to any type of coding advice, tips and help anyone can offer 
+- Thanks in advance
